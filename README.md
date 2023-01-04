@@ -1,0 +1,2 @@
+# GulzhamalAmanbaeva
+Homework2
